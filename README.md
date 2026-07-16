@@ -1,4 +1,4 @@
-# Who am I and why should you care?
+# 🌟 Who am I and why should you care?
 
 I'll start by answering the second question; you shouldn't! Nothing to see here, move along and get the code you came here for, and enjoy your day ;)
 
