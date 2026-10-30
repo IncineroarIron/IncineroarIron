@@ -10,4 +10,4 @@ Most of my time spent on GitHub is through my work as an Immersive Software Deve
 
 Anyways, I do a bunch of other cool stuff but I won't bore you to death here, if you're interested in reading more about my escapades feel free to shoot me a follow on LinkedIn! https://www.linkedin.com/in/tristan-than/
 
-Catch ya around!
+Catch ya around!!
